@@ -1,1 +1,1 @@
-# Kuralays-homepage
+# Kur
